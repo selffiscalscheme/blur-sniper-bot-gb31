@@ -1,4 +1,4 @@
-# 
+# ultimate NFT Rarity Sniper for blur sniper bot | trailing-stop & proxy-transactions is the best blur sniper bot, featuring trailing-stop and proxy-transactions. Fast, smart, and
 
 
 
